@@ -8,6 +8,7 @@
 - BUMP OF CHICKEN
 - super beaver
 - LE SSERAFIM
+- Rin☆yuu
 - kaneko ayano カネコアヤノ
 - Midnight Grand Orchestra
 - Queen
