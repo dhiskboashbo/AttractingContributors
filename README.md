@@ -16,4 +16,5 @@
 - METALLICA
 - 斉藤和義
 - Jun Maeda
+- 菅原圭
 
